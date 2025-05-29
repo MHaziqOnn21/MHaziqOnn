@@ -69,6 +69,3 @@ With proper guidance, I'm confident I can **grow rapidly and contribute effectiv
 
 
 Thanks for dropping by — feel free to explore my work and get in touch if you’d like to collaborate or chat about projects!
-
-
-I want to add that I am open for work to advance my learning with industrial applications. Through guidance I believe I can excel myself even further. - Should I include this?
